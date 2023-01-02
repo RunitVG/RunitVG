@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RunitVG
+- 👀 I’m interested in Aerospace Engineering
+- 🌱 I’m currently learning Mechanical Engineeering at Bharati Vidyapeeth College of Engineering, Pune
+- 💞️ I’m looking to collaborate on aerospace engineering projects.
+- 📫 How to reach me - Email: runitvg@gmail.com
